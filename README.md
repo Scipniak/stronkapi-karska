@@ -1,0 +1,1 @@
+# stronkapi-karska
